@@ -13,4 +13,4 @@ or
 
 I invite you all also to fill in the form. You can open it with the link you have below.
 
-https://drive.google.com/open?id=1kox0SAjpwKhuputOOULZ8LqGRx3kUj27Elht9gof1eM
+https://docs.google.com/forms/d/e/1FAIpQLScHgtQTyVorDygvF8NP1D2lNrqePhuq_4OrX9uqVSOT3OB-lQ/viewform?vc=0&c=0&w=1
